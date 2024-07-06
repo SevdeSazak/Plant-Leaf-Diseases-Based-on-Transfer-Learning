@@ -1,0 +1,1 @@
+# Transfer-renme-Temelli-Bitki-Hastal-klar-n-n-Tespiti
